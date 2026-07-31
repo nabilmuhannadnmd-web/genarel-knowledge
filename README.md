@@ -1,0 +1,2 @@
+# genarel-knowledge
+komuke tore
